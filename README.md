@@ -35,779 +35,112 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-An exposition of the Song of Solomon: called Canticles Together with profitable obseruations, collec
+
+1. TO THE AVTHOR OF THIS WORK
+The Publiſher thereof wiſheth Grace in this world,
+and Glory in the world to come.
+
+1. To the Chriſtian Reader.
+
+1. AN ADVERTISMENT
+to the Reader.
+
+1. Errata.
+
 #####Body#####
 
-1. CHAP. I.
+1. AN
+EXPOSITION
+of the Song of Solomon, called
+CANTICLES.
 
-    _ CHVRCH.
+    _ CHAP. I.
 
-    _ CHRIST.
+      * CHVRCH.
 
-    _ CHVRCH.
+      * CHRIST.
 
-    _ CHRIST.
+      * CHVRCH.
 
-    _ CHVRCH
+      * CHRIST.
 
-    _ CHRIST and CHVRCH both.
+      * CHVRCH
 
-    _ CHRIST.
+      * CHRIST and CHVRCH both.
 
-    _ CHVRCH.
+    _ CHAP. II.
 
-    _ CHRIST.
+      * CHRIST.
 
-    _ CHVRCH.
+      * CHVRCH.
 
-    _ CHRIST.
+    _ CHAP. III.
 
-    _ CHVRCH.
+    _ CHAP. IIII.
 
-    _ The Maydens the CHVRCHES friends.
+      * CHRIST.
 
-    _ CHVRCH.
+      * CHVRCH.
 
-    _ The maydens the Churches friends.
+      * CHRIST.
 
-    _ CHVRCH.
+    _ CHAP. V
 
-    _ CHRIST.
+      * CHVRCH.
 
-    _ CHVRCH.
+      * The Maydens the CHVRCHES friends.
 
-    _ CHVRCH.
+      * CHVRCH.
 
-    _ CHRIST and his CHVRCH both.
+      * The maydens the Churches friends.
 
-    _ CHVRCH.
+      * CHVRCH.
 
-    _ CHRIST.
+    _ CHAP. VI.
 
-    _ CHVRCH▪
+      * CHRIST.
 
-1. CHAP. II.
+    _ CHAP. VII.
 
-    _ CHVRCH.
+      * CHVRCH.
 
-    _ CHRIST.
+    _ CHAP. VIII.
 
-    _ CHVRCH.
+      * CHVRCH.
 
-    _ CHRIST.
+      * CHRIST and his CHVRCH both.
 
-    _ CHVRCH
+      * CHVRCH.
 
-    _ CHRIST and CHVRCH both.
+      * CHRIST.
 
-    _ CHRIST.
+      * CHVRCH▪
 
-    _ CHVRCH.
+1. OBSERVATIONS
+on the Song of Solomon for
+the comfort of euerie true
+Beli••er.
 
-    _ CHRIST.
+    _ CHAP. I.
 
-    _ CHVRCH.
+    _ CHAP. III.
 
-    _ CHRIST.
+    _ CHAP. II.
 
-    _ CHVRCH.
+    _ CHAP. IIII.
 
-    _ The Maydens the CHVRCHES friends.
+    _ CHAP. V.
 
-    _ CHVRCH.
+    _ CHAP. VI.
 
-    _ The maydens the Churches friends.
+    _ CHAP. VII.
 
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHVRCH.
-
-    _ CHRIST and his CHVRCH both.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH▪
-
-1. CHAP. III.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH
-
-    _ CHRIST and CHVRCH both.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ The Maydens the CHVRCHES friends.
-
-    _ CHVRCH.
-
-    _ The maydens the Churches friends.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHVRCH.
-
-    _ CHRIST and his CHVRCH both.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH▪
-
-1. CHAP. IIII.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH
-
-    _ CHRIST and CHVRCH both.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ The Maydens the CHVRCHES friends.
-
-    _ CHVRCH.
-
-    _ The maydens the Churches friends.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHVRCH.
-
-    _ CHRIST and his CHVRCH both.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH▪
-
-1. CHAP. V
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH
-
-    _ CHRIST and CHVRCH both.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ The Maydens the CHVRCHES friends.
-
-    _ CHVRCH.
-
-    _ The maydens the Churches friends.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHVRCH.
-
-    _ CHRIST and his CHVRCH both.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH▪
-
-1. CHAP. VI.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH
-
-    _ CHRIST and CHVRCH both.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ The Maydens the CHVRCHES friends.
-
-    _ CHVRCH.
-
-    _ The maydens the Churches friends.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHVRCH.
-
-    _ CHRIST and his CHVRCH both.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH▪
-
-1. CHAP. VII.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH
-
-    _ CHRIST and CHVRCH both.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ The Maydens the CHVRCHES friends.
-
-    _ CHVRCH.
-
-    _ The maydens the Churches friends.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHVRCH.
-
-    _ CHRIST and his CHVRCH both.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH▪
-
-1. CHAP. VIII.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH
-
-    _ CHRIST and CHVRCH both.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ The Maydens the CHVRCHES friends.
-
-    _ CHVRCH.
-
-    _ The maydens the Churches friends.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHVRCH.
-
-    _ CHRIST and his CHVRCH both.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH▪
-
-1. CHAP. I.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH
-
-    _ CHRIST and CHVRCH both.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ The Maydens the CHVRCHES friends.
-
-    _ CHVRCH.
-
-    _ The maydens the Churches friends.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHVRCH.
-
-    _ CHRIST and his CHVRCH both.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH▪
-
-1. CHAP. III.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH
-
-    _ CHRIST and CHVRCH both.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ The Maydens the CHVRCHES friends.
-
-    _ CHVRCH.
-
-    _ The maydens the Churches friends.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHVRCH.
-
-    _ CHRIST and his CHVRCH both.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH▪
-
-1. CHAP. II.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH
-
-    _ CHRIST and CHVRCH both.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ The Maydens the CHVRCHES friends.
-
-    _ CHVRCH.
-
-    _ The maydens the Churches friends.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHVRCH.
-
-    _ CHRIST and his CHVRCH both.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH▪
-
-1. CHAP. IIII.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH
-
-    _ CHRIST and CHVRCH both.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ The Maydens the CHVRCHES friends.
-
-    _ CHVRCH.
-
-    _ The maydens the Churches friends.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHVRCH.
-
-    _ CHRIST and his CHVRCH both.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH▪
-
-1. CHAP. V.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH
-
-    _ CHRIST and CHVRCH both.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ The Maydens the CHVRCHES friends.
-
-    _ CHVRCH.
-
-    _ The maydens the Churches friends.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHVRCH.
-
-    _ CHRIST and his CHVRCH both.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH▪
-
-1. CHAP. VI.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH
-
-    _ CHRIST and CHVRCH both.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ The Maydens the CHVRCHES friends.
-
-    _ CHVRCH.
-
-    _ The maydens the Churches friends.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHVRCH.
-
-    _ CHRIST and his CHVRCH both.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH▪
-
-1. CHAP. VII.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH
-
-    _ CHRIST and CHVRCH both.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ The Maydens the CHVRCHES friends.
-
-    _ CHVRCH.
-
-    _ The maydens the Churches friends.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHVRCH.
-
-    _ CHRIST and his CHVRCH both.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH▪
-
-1. CHAP. VIII.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH
-
-    _ CHRIST and CHVRCH both.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ The Maydens the CHVRCHES friends.
-
-    _ CHVRCH.
-
-    _ The maydens the Churches friends.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH.
-
-    _ CHVRCH.
-
-    _ CHRIST and his CHVRCH both.
-
-    _ CHVRCH.
-
-    _ CHRIST.
-
-    _ CHVRCH▪
+    _ CHAP. VIII.
 
 #####Back#####
-An exposition of the Song of Solomon: called Canticles Together with profitable obseruations, collec
+¶Imprinted at London by John
+Beale, dwel•ing in Alderſgate
+ſtreete 1615.
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
